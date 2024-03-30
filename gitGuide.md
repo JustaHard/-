@@ -125,4 +125,6 @@ iaikacancancancasnckasjcnakcnaskcnaskcnaskcnask
 
 ## Бред 4
 
-ljvnsdlvndskjvdlskvmnkdsbldsfknvdjsfhvldsfvnjdshfbvkdsfvnjb
+Вместо бреда тут будут котики
+
+![Котики не найдены, поэтому вот вам бред: овтмоытмвфмжфдмтфмиыфодмтвфлаимлфамвлфа](kotiki.png)
