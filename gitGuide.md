@@ -113,8 +113,16 @@
 
 ## Бред 1
 
+njdfnvjdknvdfkjnvdkfvndkfvndkfvndkfvndfkn
+
 ## Бред 2
+
+lkvma;mvasdlnvsadlvmd;avnads'vdkfbvkdasn
 
 ## Бред 3
 
+lsdjvnsdlvmaljvbawlvmskebvisdnksdbvkdvnkds
+
 ## Бред 4
+
+ljvnsdlvndskjvdlskvmnkdsbldsfknvdjsfhvldsfvnjdshfbvkdsfvnjb
